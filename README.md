@@ -1,1 +1,1 @@
-https://saiteja0826.github.io/restaurant/
+https://saiteja0826.github.io/restaurant-website/
